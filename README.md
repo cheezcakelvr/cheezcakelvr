@@ -1,16 +1,18 @@
 ## Hi honeybunchkins
 ♡__________‧₊ᵎᵎ🍒⋅°✮__________♡
+<p align="center">
+  <img src="https://mariahluvscats.neocities.org/32ab4341bf9d7be4cb5f21b2e594ebdd.jpg">
+♡__________‧₊ᵎᵎ🍒⋅°✮__________♡
+<p align="center">
+  <img
+src="https://mariahluvscats.neocities.org/strawberry.gif">
 
-**cheezcakelvr/cheezcakelvr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+♡‧₊ᵎᵎ🍒⋅°✮♡--> I'm lesbian-ish
+♡‧₊ᵎᵎ🍒⋅°✮♡--> 15
+♡‧₊ᵎᵎ🍒⋅°✮♡--> Larper confirmed
+♡‧₊ᵎᵎ🍒⋅°✮♡--> Nice once u get to know me
+♡‧₊ᵎᵎ🍒⋅°✮♡--> Can be a freak at times
+♡‧₊ᵎᵎ🍒⋅°✮♡--> I love music
+♡‧₊ᵎᵎ🍒⋅°✮♡--> I dunno what else, hello! nice meeting u, if u wanna get to know me more then look at my other random shit 😛
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
