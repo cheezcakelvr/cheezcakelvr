@@ -6,7 +6,7 @@
 <p align="center">
   <img
 src="https://mariahluvscats.neocities.org/5194c4d5d978f5b727426365c4205158.jpg">
-  ♡__________‧₊ᵎᵎ🍒⋅°✮__________♡
+ ♡__________‧₊ᵎᵎ🍒⋅°✮__________♡
     <p align="center">
   <img
 src="https://mariahluvscats.neocities.org/strawberry.gif">
